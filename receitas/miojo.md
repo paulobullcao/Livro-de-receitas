@@ -1,23 +1,17 @@
+# Miojo de galinha :chicken: 
 
+### Como fazer o melhor miojo  de frango.
 
-# Miojo de galinha caipira :chicken:
+### Ingredientes 
 
-### ingredientes 
+- 1 Miojo de galinha
 
-- 1 miojo de galinha caipira 
-- 1 panela pequena
-- água  
-- colher 
+-  1 xicara de Água
 
-### Modo de preparo 
+- 1 panela com cabo
 
-- Em uma panela add a água e o miojo e espere até ele ficar mole 
-- depois, add o tempero e pronto 
-- coma.
+  ### Modo de preparo
 
-
-
-
-
-
-
+  - Em uma panela adicione a água espere ela ferver.
+  - Quando a agua estiver fervendo, adicione o miojo e coloque também um pouco do tempero,  espere por  3min.
+  - em um prato coloque o miojo, adicione o restante do tempero e pode se servir.
